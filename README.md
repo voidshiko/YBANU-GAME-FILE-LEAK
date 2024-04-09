@@ -1,4 +1,5 @@
 # YBANU-GAME-FILE-LEAK
+# LINKS ARE BROKEN AS OF NOW. I'LL UPDATE THEM LATER
 Bunch of leaks from YBA and YBA:NU.
 
 This includes game files and Discord channels from dev group chats and staff chats.
