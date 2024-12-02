@@ -16,5 +16,5 @@
 - I'm Voidshiko, also known as Void. I was a YBA:NU head developer, being active from May 2022 to January 2024.
 - I leaked these files 2 months after my YBA:NU ban, out of boredom, which didn't stop Zaku and his staff from annoying me.
 - Zaku is a terrible owner. Constantly lies, manipulates people, harasses people, and scams his players (evidence in the Discord chats).
-- If you want to play a good YBA clone, try out [YBA: Legacy](https://www.roblox.com/games/15518182065/CDR-YBA-L).
+- Artyom_MM is a broke 20 year old man who can't insult anybody even if his life depended on it. He's also on the brink of homelessness and uses birthday money to buy gas.
 - **If you wanna talk to me or get in touch with other YBA clone players, join my [Discord server.](https://discord.gg/QYa7Gtteqj)**
